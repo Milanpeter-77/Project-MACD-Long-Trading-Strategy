@@ -1,0 +1,1 @@
+# Personal-MACD-Long-Trading-Strategy
